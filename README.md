@@ -1,1 +1,0 @@
-# fawry-ecommerce-challenge
